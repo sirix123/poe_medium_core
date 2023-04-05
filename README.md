@@ -2,3 +2,4 @@
 
 https://www.pathofexile.com/developer/docs 
 
+https://imgur.com/a/L4pPQXG
